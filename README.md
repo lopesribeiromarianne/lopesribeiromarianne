@@ -1,5 +1,5 @@
 -marianne
-- atualmente estou estudando do 1 ano do ensino medio 
+- atualmente estou estudando no 1 ano do ensino medio 
 -gosto de computação
 -gosto de praticar esportes e de fazer academia
 
